@@ -1,3 +1,3 @@
-# Welcome to mediumvolu.me
+# Medium Volume: The World's Best Speakers
 
-Why does this website exist? For one reason: I got the domain for free. The URL was also the most clever thing I could come up with. Maybe some time I'll actually put something here, but for now this will do.
+Introducing Medium Volume: Speakers built by and for audiophiles. With beautifly crafted artisian cases and full-bodied sound, these are the latest and greatest in speaker technology. Coming soon to a retailer near you.
